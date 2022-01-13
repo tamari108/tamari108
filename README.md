@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tamari108
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on somthing
+- 📫 How to reach me youtube
